@@ -1,1 +1,1 @@
-# Image of Yaktocat
+[ Image of Yaktocat]
